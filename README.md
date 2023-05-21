@@ -1,0 +1,1 @@
+# lokasi-sekolah-menengah-kebangsaan-di-kulim-kedah
